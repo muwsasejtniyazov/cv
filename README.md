@@ -1,1 +1,1 @@
-https://muwsasejtniyazov.github.io/cv/
+https://muwsasejtniyazov.github.io/cv/intel
