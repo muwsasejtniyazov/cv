@@ -1,1 +1,1 @@
-https://github.com/muwsasejtniyazov/cv.git
+https://muwsasejtniyazov.github.io/cv/
